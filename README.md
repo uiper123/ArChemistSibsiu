@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/904f073a-1b45-46d7-ab52-b02f6d57cdbc)# ArChemistSibsiu
+
 ArChemistSibsiu – уникальное приложение
 ArChemistSibsiu: Погружение в Мир Химии
 
